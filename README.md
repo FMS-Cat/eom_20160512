@@ -1,4 +1,6 @@
-# Everyday One Motion - 20160512 "女子力"  
+# Everyday One Motion - 20160512  
+
+"女子力"  
 
 ![](20160512.gif)  
 
